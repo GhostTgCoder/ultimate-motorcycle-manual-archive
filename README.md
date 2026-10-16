@@ -7,6 +7,8 @@ Looking for a motorcycle service manual, workshop manual, repair guide, wiring d
 Explore **22,000+ technical documents across 300+ brands** through the [MotoDocs Telegram community](https://t.me/motodocs).
 
 **[JOIN MOTODOCS ON TELEGRAM](https://t.me/motodocs) · [EXPLORE THE DOCUMENTATION](https://t.me/motodocs) · [STAR THIS REPOSITORY](../../stargazers)**
+<img width="1226" height="1666" alt="Снимок экрана — 2026-10-15 в 18 56 59" src="https://github.com/user-attachments/assets/8dbc570b-1317-42a6-be46-28a4edadfaf8" />
+<img width="1380" height="994" alt="Снимок экрана — 2026-10-15 в 18 58 51" src="https://github.com/user-attachments/assets/c3a5b4cd-6b60-4212-a39b-992e7475a39e" />
 
 ---
 
